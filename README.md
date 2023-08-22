@@ -1,4 +1,4 @@
-- Heyo, I’m @YeahAurelia She/Her 🏳️‍⚧️
+- Heyo, I’m Aurelia/Relz She/Her 🏳️‍⚧️
 
 <!---
 YeahAurelia/YeahAurelia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
